@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Anything possible
 - 💞️ I’m looking to collaborate on ... Anything to do with coding kernel development and ai/ml
 - 📫 How to reach me ... reeerookuuu@gmail.com
-- 😄 Pronouns: ... none
+- 😄 Pronouns: ... non-binary 
 - ⚡ Fun fact: ... i eat rocks
 
 <!---
